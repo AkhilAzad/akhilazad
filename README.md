@@ -1,7 +1,7 @@
 ## Hi, I'm Akhil 🧩
 
 🧠 Computer Science student at Chitkara University<br/>
-😊 Exicutive member in Coding Ninja Club<br/>
+😊 Executive member in Coding Ninja Club<br/>
 🌲 I create themed website to stay consistent<br/>
 😒 I make videos on being fit & disciplined<br/> 
 📸 Instagram : ( https://www.instagram.com/akhilazad/ )
